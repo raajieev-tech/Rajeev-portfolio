@@ -1,0 +1,1 @@
+**Content writer with 20+ years in healthcare, technical documentation, and proofreading. Skilled in creating clear, accurate medical, clinical, and process-based content. Reliable, detail-focused, and strong in compliance-driven writing.*
